@@ -1,1 +1,1 @@
-hello comennt hows my website
+hello,give ur comment hows my website
